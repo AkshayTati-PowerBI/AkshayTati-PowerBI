@@ -30,6 +30,6 @@ I'm a **Data Analyst with 6+ years of experience** specializing in **Power BI, P
 ---
 
 ### 📫 **Let's Connect!**
-🔗 [LinkedIn](https://www.linkedin.com/in/akshay-tati-474a56133)  |  🌐 [Portfolio](https://yourwebsite.com)  |  📩 [Email](mailto:your.email@example.com)
+🔗 [LinkedIn](https://www.linkedin.com/in/akshay-tati-474a56133)  |  🌐 [Portfolio](https://yourwebsite.com)  |  📩 [Email](mailto:akshaytati@gmail.com)
 
 💡 *Open to collaborations, freelance opportunities, and new challenges!* 🚀
